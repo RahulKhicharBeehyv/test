@@ -1,1 +1,0 @@
-looda lashan 
